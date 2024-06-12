@@ -9,4 +9,8 @@ meu nome é Lucas Toledo
 ### Você entrar em contato comigo 📧
 
 toledolucasguimaraes@gmail.com
+
 @lucasguitoledo
+
+![](https://media1.tenor.com/m/LDtBiM9ciEoAAAAC/clash-royale-clash-royale-emote.gif)
+
