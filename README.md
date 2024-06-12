@@ -12,5 +12,5 @@ toledolucasguimaraes@gmail.com
 
 @lucasguitoledo
 
-![](https://media1.tenor.com/m/LDtBiM9ciEoAAAAC/clash-royale-clash-royale-emote.gif)
+![](https://media1.tenor.com/m/LDtBiM9ciEoAAAAC/clash-royale-clash-royale-emote.gi)
 
